@@ -1,2 +1,2 @@
 # ПРИКОЛЬНЫЙ МОД НА HEARTS OF IRON 4
-# THE NEW RYBINSK: THE FIRE AT WAR LEGACY
+# ребята это прикол
